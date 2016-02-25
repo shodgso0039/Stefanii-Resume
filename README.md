@@ -8,9 +8,9 @@ Stefani.Hodgson@hotmail.com
 Objective: Looking at a new opportunity where I can leverage my 20+ years as a customer service manager. To secure a responsible career opportunity where I can fully utilize my training, human resource and management skills while making a significant contribution to the success of my employer.
 
 Areas of expertise include:
-Managing				Conflict Resolution
-Organizing				Project Management
-Customer Service			Mentoring
+Managing				              Conflict Resolution
+Organizing			              Project Management
+Customer Service			        Mentoring
 Interpersonal Communication 	Leading and Developing
 
 Substitute School Bus Driver
